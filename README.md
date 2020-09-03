@@ -1,2 +1,3 @@
 # Cheez
-Uh idk i haven't used github ever
+Uh how do you use github?
+i never used it
