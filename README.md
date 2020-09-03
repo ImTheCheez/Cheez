@@ -1,3 +1,1 @@
-# Cheez
-Uh how do you use github?
-i never used it
+https://www.youtube.com/watch?v=Svj1bZz2mXw
